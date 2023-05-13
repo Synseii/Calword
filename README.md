@@ -7,4 +7,4 @@ Blast Discord MultiTool with 34 options. Easy to use and has everything you need
 
 50 STARS AND ILL RELEASE FREE TO USE BLAST MULTITOOL
 
-Prices and 24/7 Support available in our new discord server https://discord.gg/Tv6M4FBb6A
+Prices and 24/7 Support available in our new discord server discord.gg/blasted
