@@ -1,10 +1,11 @@
 # Blast MultiTool
-Blast Discord MultiTool with 34 options. Easy to use and has everything you need to break discord TOS from nukers to spammers and grabbers.
+About: Blast is a discord tool with 36 easy to use options that are being constantly updated with new Discord updates.
+more info in our discord: discord.gg/blasted
 
 
 
-![image](https://github.com/lostroes/Blast-MultiTool/assets/80589822/eee41a0e-e37b-45b8-8e10-0f55e89e23b9)
+![image](https://github.com/lostroes/Blast-MultiTool/assets/80589822/175b7629-eca7-4595-a281-4ef508d89c35)
 
-50 STARS AND ILL RELEASE FREE TO USE BLAST MULTITOOL
+50 STARS AND ILL RELEASE FREE TO USE BLAST TOOL
 
 Prices and 24/7 Support available in our new discord server discord.gg/blasted
