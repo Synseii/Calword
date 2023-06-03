@@ -2,7 +2,7 @@
 About: calword is a discord tool with 34 easy to use options that are being constantly updated with new Discord updates.
 more info in our discord: discord.gg/calword
 
-# Update June 3, 2023
+# Updated June 3, 2023
 
 
 
