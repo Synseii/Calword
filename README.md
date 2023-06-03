@@ -1,6 +1,8 @@
 # Calword MultiTool / discord.gg/calword
-About: calword is a discord tool with 36 easy to use options that are being constantly updated with new Discord updates.
+About: calword is a discord tool with 34 easy to use options that are being constantly updated with new Discord updates.
 more info in our discord: discord.gg/calword
+
+# Update June 3, 2023
 
 
 
