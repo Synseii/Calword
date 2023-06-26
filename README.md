@@ -10,7 +10,10 @@
 > Paid version of Calword is being updated with every Discord patch. We are working on adding more options and new page.
 
 ### [👾] **Showcase**
-![image](https://github.com/lostroes/calword-multitool/assets/80589822/bd7ad8c1-db8d-4f55-bf69-d910eb99af2a)
+![GSD](https://github.com/lostroes/calword-multitool/assets/80589822/ac81e0f5-3582-43bc-b85c-9197d01db3fa)
+![GSDFGH](https://github.com/lostroes/calword-multitool/assets/80589822/c23f0fbf-ecf5-4c2c-a2e5-f2c40bca2fea)
+
+
 
 ### [💸] **Where to buy**
 > You can buy in our Discord Server [https://discord.gg/calword] or Sellix [https://calword.mysellix.io] and also check the prices of the tool. Our website [https://calword.lol] will be updated soon.
