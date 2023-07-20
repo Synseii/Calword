@@ -19,6 +19,8 @@
 
 ![GSD](https://media.discordapp.net/attachments/1124576052971319296/1131502159385595904/leaked.PNG?width=417&height=427)
 
+![GSD]([https://media.discordapp.net/attachments/1129850222684688444/1131506259007385640/Capture.PNG?width=746&height=427)
+
 
 
 
