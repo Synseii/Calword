@@ -21,6 +21,8 @@
 
 ![GSD](https://media.discordapp.net/attachments/1129850222684688444/1131506259007385640/Capture.PNG?width=746&height=427)
 
+**OWNER OF CALWORD SAYS THE WHOLE POINT IN CALWORD IS TO SCAM HIS BUYERS ODD AINT IT**
+![GSD](https://media.discordapp.net/attachments/1129850222684688444/1131533958312644690/IMG_8253.png?width=440&height=427)
 
 
 
