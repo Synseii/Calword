@@ -16,7 +16,7 @@
 
 ### [👾] **Showcase of calword leak**
 ![GSD](https://media.discordapp.net/attachments/1124576052971319296/1131502159700164709/Capture.PNG?width=475&height=427)
-![GSDFGH]([[https://media.discordapp.net/attachments/1124576052971319296/1131502159385595904/leaked.PNG?width=417&height=427]
+![GSD](https://media.discordapp.net/attachments/1124576052971319296/1131502159385595904/leaked.PNG?width=417&height=427)
 
 
 
